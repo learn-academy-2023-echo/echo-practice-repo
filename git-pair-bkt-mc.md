@@ -4,4 +4,4 @@
 
 ## Favorite Food : Chicken Wings -Bao
 
-## Favorite doof : Sushi - Mike 
+## Favorite Food : Sushi - Mike 
