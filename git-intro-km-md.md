@@ -8,3 +8,4 @@ stuffed salmon
 chicken Fajitas
 cranberry juice
 soda water with lemon
+birthday cake ice cream
