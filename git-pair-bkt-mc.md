@@ -2,4 +2,6 @@
 
 ## My favorite color is red - Mike
 
-## Favorite food : chicken wings -Bao
+## Favorite Food : Chicken Wings -Bao
+
+## Favorite doof : Sushi - Mike 
